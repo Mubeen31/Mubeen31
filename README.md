@@ -12,7 +12,7 @@ Gist about me
 
 ### Other places you can find me
 
-[See my Tweet](https://twitter.com/Mubeen19421032)
+[Follow me on twitter](https://twitter.com/Mubeen19421032)
 
 [Subscribe my youtube channel](https://www.youtube.com/channel/UCHpBVa4rGMaN7OOpWkRaKsw/videos)
 
