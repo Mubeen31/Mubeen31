@@ -14,6 +14,6 @@ Gist about me
 
 [Follow me on twitter](https://twitter.com/Mubeen19421032)
 
-[Subscribe my youtube channel](https://www.youtube.com/channel/UCHpBVa4rGMaN7OOpWkRaKsw/videos)
+[View dash apps on youtube](https://www.youtube.com/channel/UCHpBVa4rGMaN7OOpWkRaKsw/videos)
 
 
