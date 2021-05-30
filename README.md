@@ -1,5 +1,4 @@
 ### Hi there It's me Mubeen 👋
-[![HitCount](http://hits.dwyl.com/Mubeen31/Mubeen31.svg)](http://hits.dwyl.com/Mubeen31/Mubeen31)
 
 Gist about me
 
